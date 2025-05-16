@@ -1,5 +1,5 @@
 - 👋 Hi, I’m himanshu kumar
-- 👀 I’m interested in creating good product and also good writing skills
+- 👀 I’m interested in creating good product and also good writer.
 - 🌱 I’m currently pursing my btech from IIIT KALYANI 
 - 💞️ I’m looking to go forward in engineering journey 
 - 📫 You can contact me with my email id - himanshusingh05719@gmail.com
